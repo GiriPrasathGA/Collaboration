@@ -1,1 +1,1 @@
-# Collaboration with friends
+# Collaboration with friend.
